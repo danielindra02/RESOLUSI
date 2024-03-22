@@ -1,0 +1,2 @@
+# RESOLUSI
+Resolusi kedepan
